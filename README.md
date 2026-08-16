@@ -2,6 +2,8 @@
 
 ## welcome to jordipliers profile!
 
+<img width="580" height="320" alt="image" src="https://github.com/user-attachments/assets/b3c4c036-226e-4ff7-8fdd-c741fd23b56b" />
+
 
 
 
