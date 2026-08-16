@@ -2,7 +2,7 @@
 
 ## welcome to jordipliers profile!
 
-![.](https://ibb.co/FchX700)
+
 
 
  (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡
@@ -10,7 +10,7 @@
 
 
 
-   view my strawpage and sign my ATAbook ! 
+   view my [strawpage](https://jordiplier.straw.page/) and sign my [ATAbook](https://jordiplier.atabook.org/) ! 
  
 
 
@@ -22,7 +22,7 @@
    
 ![](https://komarev.com/ghpvc/?username=jordiplier&color=green&style=plastic)
 
-
+----------------------------------------------------------------------------------
 
 🦌 🦬 🐦
 
