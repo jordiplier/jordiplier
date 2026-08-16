@@ -2,7 +2,7 @@
 
 ## welcome to jordipliers profile!
 
-
+![.](https://ibb.co/FchX700)
 
 
  (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡
