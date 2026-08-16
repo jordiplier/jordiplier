@@ -1,3 +1,5 @@
+<div align="center">
+
 ## welcome to jordipliers profile!
 
 
@@ -24,3 +26,4 @@
 
 🦌 🦬 🐦
 
+</div>
