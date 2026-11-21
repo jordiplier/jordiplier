@@ -1,25 +1,26 @@
 <div align="center">
 
-## welcome to jordipliers profile!
+## welcome to jordipliers profile.
 
-<img width="580" height="320" alt="image" src="https://github.com/user-attachments/assets/b3c4c036-226e-4ff7-8fdd-c741fd23b56b" />
+<img width="962" height="641" alt="image" src="https://github.com/user-attachments/assets/b1a3f847-dbcd-48a8-b8ef-4df8978ce07a" />
+
 
 
 ----------------------------------------------------------------------------------
 
 
- (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡
+ Feel free to whisper me/talk to me. Ask for cuddles unless i know you. I block freely.
 
 
 
 
-   view my [strawpage](https://jordiplier.straw.page/) and sign my [ATAbook](https://jordiplier.atabook.org/) ! 
+   View my [strawpage](https://jordiplier.straw.page/) and sign my [ATAbook](https://jordiplier.atabook.org/) .
+
 
  
-pryumi the dutch angel dragon !
 
   
-   (⁠灬⁠º⁠‿⁠º⁠灬⁠)⁠♡
+  
 
 
 
