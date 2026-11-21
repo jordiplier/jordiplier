@@ -25,10 +25,11 @@
 
 
    
-![](https://komarev.com/ghpvc/?username=jordiplier&color=green&style=plastic)
+![](https://komarev.com/ghpvc/?username=jordiplier&color=blue&style=plastic)
 
 
-<img width="580" height="320" alt="image" src="https://github.com/user-attachments/assets/f872b07c-1cdf-4df4-bde3-939a91f15dc9" />
+<img width="735" height="492" alt="image" src="https://github.com/user-attachments/assets/78736296-427f-4cb3-811b-4c2a7d83dd0d" />
+
 
 
 ----------------------------------------------------------------------------------
